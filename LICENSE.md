@@ -1,4 +1,4 @@
-# 
+# Updated new coin sniper bot presets for Mac OS | Free new coin sniper bot presets for PC Windows. Featuring stop-loss protection and real-time trading — optimized for maximum performance on every platform.
 
 
 
